@@ -1,0 +1,3 @@
+# Object Biography: The Ishtar Gate
+
+The Ishtar Gate was a Babylonian monument that was used primarily in a religious New Year’s festival (Podany, 2014). It was commissioned by King Nebuchadnezzar II who then dedicated the gate to the Goddess Ishtar. The gate was constructed using glazed brick with alternating rows of dragons, bulls, and lions, symbolizing the gods Marduk, Adad, and Ishtar (Kleiner, 2005). We chose to use the Ishtar Gate in our remix because of the historical significance of the Ancient Near East on Ancient Egypt and vice versa. The objects have both been broken and restored over time (Precaution, 2013). We decided to place William to the west of the Ishtar Gate facing it almost as the two civilizations faced each other in a sort of reverence.
